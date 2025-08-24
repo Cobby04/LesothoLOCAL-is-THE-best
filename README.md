@@ -1,2 +1,2 @@
-# LesothoLOCAL-is-THE-best
+# LesothoLOCAL-isTHE-best
 AGRICULTURE BASED
